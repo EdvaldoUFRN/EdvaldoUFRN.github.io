@@ -1,1 +1,1 @@
-[![Portfólio](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.ampliarte.com.br%2Fdvidas-frequentes%2Fprod-5162431%2F&psig=AOvVaw0fJI3JQmTRWkhJ2jgblfip&ust=1666646024953000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCKDYs7ii9_oCFQAAAAAdAAAAABAX)](https://edvaldoufrn.github.io/)
+[![Portfólio](https://www.ampliarte.com.br/imagem/index/16944347/G/btn_clique_aqui.png)](https://edvaldoufrn.github.io/)
