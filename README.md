@@ -1,1 +1,1 @@
-[Portifólio](https://edvaldoufrn.github.io/)
+[Portfólio](https://edvaldoufrn.github.io/)
